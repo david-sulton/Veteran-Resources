@@ -39,7 +39,7 @@ SPHR
 Customer Service Excellence
 Customer Service Excellence
 
-## Coursera Account Application
+## Coursera Training
 - https://actnoweducation.org/freecoursera
 
 
